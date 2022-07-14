@@ -130,7 +130,6 @@ healed some dudes, wasn't able to heal some dudes
 
 dudes think Doc is ganger due to tats
 
-
 plan: doc plays along, with Aspect
 
 goal: keep tabs on them, feed to LLA to feed to PC, helps smooth over tentions, shows that that wasnt the plan?
@@ -158,9 +157,6 @@ ghosts and one delegate on board with talking with LLC, other 3 want to murder L
 ghosts think we should work directly with them
 
 got to meet with delegates
-
--- cliffhanger --
-
 
 Hanaman - LLC diplomat
 
@@ -190,7 +186,6 @@ Hanaman gave Geist backup co-ords (fuckin idiot)
 pinged local network to find location of LLC sent to bts/Geist
 
 
-
 ## Pops and FRIDA spy on the Jhovians
 
 pops almost gets caught
@@ -200,8 +195,6 @@ pops learns about the static wall, interfearence caused by bouncing signals betw
 got caught a bunch
 
 went to V zone
-
-
 
 ## Apect and Doc join the hit-squad
 
@@ -238,6 +231,18 @@ yee-har'd out into V space
 saw a blinky light, got spooked
 
 everyone schedules a self diagnostic on their optical sensors, at least i presume thats what happens cos they all fail
+
+no need cos lazers go pew, bodies go flew, Doc goes eww, Aspect thinks about crew
+
+Doc and Aspect pop stack get back to base safely
+
+## The End
+
+everyone reports back "un-fucked", Jhovians and PC will resume talks (presumably without LLA, at least for the time being)
+
+errbody gets back to home base, biologicals have sustenance called "meatballs"
+
+Reaver tell us we did an okay job, he guesses. but we are still on thin ice (although the ground seems perfectly fine, and made of metal)
 
 ## Rewards
 
