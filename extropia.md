@@ -199,7 +199,7 @@ pops learns about the static wall, interfearence caused by bouncing signals betw
 
 got caught a bunch
 
-went to Z zone
+went to V zone
 
 
 
@@ -228,3 +228,17 @@ Copperman - one of the PC?
 manage to convince Jhovians by telling them about the plan of the insurgents
 
 escaped by hacking turrets
+
+## Aspect and Doc ready to go
+
+meet with hit-squad
+
+yee-har'd out into V space
+
+saw a blinky light, got spooked
+
+everyone schedules a self diagnostic on their optical sensors, at least i presume thats what happens cos they all fail
+
+## Rewards
+
+gained 8 total res points
