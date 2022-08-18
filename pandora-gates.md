@@ -91,4 +91,44 @@ will be given food/water
 
 objective: retreive drones or info from drones
 
+# going through the gate
 
+went through the gate, got the code (its the same code either side
+
+breathable atmosphere, high carbon content, composition similar to carbaniferous period gravity 1.1g
+
+oxygen rich, megafauna, high levels of moisture
+
+other side is in cave, on cliff 40m up, above treeline
+
+tracks down mountainside - probably drone tracks, down + NE
+
+cave has collapsed in areas, dias is probably burried
+
+plants not carbon based, but similar to food paste, no poisen or toxins, high in vitamin D3 B4 + omega 3 + iron
+
+fishy with a hint of lemon
+
+set about digging out the collapse trying to find the dias
+
+Gramps finds a mercury colored rock
+
+after 6 hours we clear out the rocks and found the dias
+
+after 6 hours sun has not seemed to have moved, still as bright as when we started
+
+dug out the rock, looks like iron pyrite, similar to limestone but dencer, trace silver + xenon, 15kg size of palm
+
+tried to dial out, colours did not match, could not get connection
+
+decided that blowing up the rock would not be a good idea
+
+## decended into the cannopy
+
+dragonflys, birbs with multi wings + braided tails, weird noises, spider webs, fly traps, ferns
+
+O2 increases to 40%, N 50%, 35C 60% high humidity
+
+east hugs cliff - west goes through trees - north west heads through sparse trees
+
+soil high nitrates, nutrient rich for plant
